@@ -1,4 +1,4 @@
--👋 Hi, I’m @SatyaHarisir
+-👋 Hi, I’m @SatyaHari Sir
 👀 I’m interested in English grammar, language learning, and education.
 🌱 I’m currently learning advanced language structures and linguistic theories.
 💞️ I’m looking to collaborate on projects related to language education, grammar resources, or research in linguistics.
